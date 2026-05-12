@@ -1,4 +1,4 @@
-# 
+# Enhance Jupyter Notebook for PC | Jupyter Notebook for Windows with best Jupyter Notebook for PC | Jupyter Notebook for Windows Integration | statistical-modeling +
 
 
 
